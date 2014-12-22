@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A PLEASANT History: Declaring the whole Art of Phisiognomy, Orderly vttering all the speciall parts 
+
 1. An Admonition vnto the Gentle Reader.
 
 #####Body#####
